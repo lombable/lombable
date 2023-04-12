@@ -7,7 +7,7 @@
 
 - 📫 How to reach me? Easy! **rinconaedgar@gmail.com**
 
-- ⚡ Fun fact: **I LOVE videogames, and my dog thinks I'm funny.**
+- ⚡ Fun fact: I **LOVE** videogames, and my dog thinks I'm funny.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
